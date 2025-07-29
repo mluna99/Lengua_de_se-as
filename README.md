@@ -1,1 +1,1 @@
-# Lengua_de_se-as
+# Lengua_de_señas
